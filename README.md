@@ -1,2 +1,2 @@
-# Daniek
+# Daniel
 Marmitas 
